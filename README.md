@@ -62,7 +62,4 @@ October 2025 – Present
 **Operations Intern – Springworks**  
 April 2025 – October 2025
 
-## 📫 Connect With Me
 
-- LinkedIn: [Add your LinkedIn URL]
-- GitHub: [Add your GitHub URL]
